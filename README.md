@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AlixBoi
+- 👋 Hi, I’m @Ali-A-Yousefi
 - 👀 I’m interested in ... dying
 - 🌱 I’m currently learning ... how to die
 - 💞️ I’m looking to collaborate on ... an introduction to death and his assosiates 
